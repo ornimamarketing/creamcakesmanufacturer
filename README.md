@@ -1,0 +1,2 @@
+# creamcakesmanufacturer
+Ornima, is India’s largest manufacturer, supplier, exporter of bakery, confectionery products, ingredients cream cakes, fruit cakes, chocolate whipped cakes, non-dairy cream cakes with whip topping, N berry cakes, N fodex cakes, blueberry cakes, strawberry cakes, pineapple cakes, cheese cakes, sugar free cakes, cholesterol free cakes, organic cakes, aroma emulsifiers coloring delicious cakes in Delhi.
